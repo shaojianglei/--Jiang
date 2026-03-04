@@ -15,3 +15,21 @@
 ![Screenshot_20260302_211335](D:\新建文件夹 (2)\3159659202\FileRecv\MobileFile\Screenshot_20260302_211335.jpg)
 
 ![Image_1772457866479_876](D:\新建文件夹 (2)\3159659202\FileRecv\MobileFile\Image_1772457866479_876.jpg)
+
+#### 3.3
+
+今天基础强化30讲还没到货，但是还是先看了b站张宇视频，基础部分几乎都是高中基础知识，边看边做还是看了基础篇第一章，英语继续背单词，复习昨天加上今天35词，今天也开始开了每日长难句
+
+![Screenshot_20260304_230645](D:/新建文件夹 (2)/3159659202/FileRecv/MobileFile/Screenshot_20260304_230645.jpg)
+
+![sb_5918ee67-eb44-49ad-a8eb-bda942d91c50_177253887](D:/新建文件夹 (2)/3159659202/FileRecv/MobileFile/sb_5918ee67-eb44-49ad-a8eb-bda942d91c50_177253887.jpg)
+
+![sb_c75443a7-3b5d-4c1b-8a2c-a4dbedba4bdd_177253869](D:/新建文件夹 (2)/3159659202/FileRecv/MobileFile/sb_c75443a7-3b5d-4c1b-8a2c-a4dbedba4bdd_177253869.jpg)
+
+#### 3.4
+
+今天继续看了数学基础篇第二章，英语也接着复习加上今日35词，项目那边也不简单，跟着网课学吧，反正还没开始写代码，继续加油、
+
+![sb_6b070874-027e-4b3d-8e3d-f9f8e8aa65fa_177263680](D:/新建文件夹 (2)/3159659202/FileRecv/MobileFile/sb_6b070874-027e-4b3d-8e3d-f9f8e8aa65fa_177263680.jpg)
+
+![Screenshot_20260304_230645](D:/新建文件夹 (2)/3159659202/FileRecv/MobileFile/Screenshot_20260304_230645.jpg)
